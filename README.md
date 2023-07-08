@@ -6,3 +6,4 @@ Silahkan tambahkan nama kalian di bawah ini dan berikan jokes terbaik kalian di 
 ## Contributors
 
 - Gagas Praharsa Bahar
+- Rayhan Kinan Makkulawu
