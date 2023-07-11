@@ -7,3 +7,4 @@ Silahkan tambahkan nama kalian di bawah ini dan berikan jokes terbaik kalian di 
 
 - Gagas Praharsa Bahar
 - Julian Caleb Simandjuntak
+- Kevin Prayoga Abdinegara
